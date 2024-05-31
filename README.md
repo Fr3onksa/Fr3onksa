@@ -11,3 +11,4 @@ Fr3onksa/Fr3onksa is a ✨ special ✨ repository because its `README.md` (this 
 You can click the Preview link to take a look at your changes.
 --->
 It's me Fro3on ksa S3odeey Run bebey
+https://github.com/users/Fr3onksa/projects/4?pane=info&statusUpdateId=28247
